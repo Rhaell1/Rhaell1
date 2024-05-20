@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![](link)
+![](https://tenor.com/pt-BR/view/fry-egg-on-pavement-hot-heat-wave-sidewalk-gif-22138831)
 
